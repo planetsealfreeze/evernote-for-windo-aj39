@@ -1,4 +1,4 @@
-# 
+# Enhance Evernote for Windows with vip Evernote for Windows Plugin | math-equations + backlinks, the #1 plugin. Includes math-equations and backlinks for a smoother and more
 
 
 
